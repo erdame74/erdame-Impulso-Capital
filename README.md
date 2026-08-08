@@ -1,1 +1,0 @@
-# erdame-Impulso-Capital
